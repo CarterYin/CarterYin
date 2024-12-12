@@ -2,7 +2,7 @@
 - 👀 I’m interested in ALL I want to know(seems weird)
 - 🌱 I’m currently major in AI
 - 💞️ I’m looking for someone to guide me into the sea of AI
-- 📫 How to reach me :yinchao050313@gmail.com
+- 📫 How to reach me :yinchao050313@gmail.com ///yinchao23@mails.ucas.ac.cn
 - 😄 Pronouns: He Him
 - ⚡ Fun fact: I am a piece of white paper.
 
