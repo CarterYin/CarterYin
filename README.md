@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CarterYin
-- 👀 I’m interested in ALL I want to know(seems weird)
+- 👀 Let it rot.I let myself go to seed.
 - 🌱 I’m currently major in AI
 - 📫 How to reach me :yinchao050313@gmail.com
 - 😄 Pronouns: He Him
