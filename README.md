@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @CarterYin
 - 🌱 I’m currently major in AI
 - 📫 How to reach me :yinchao050313@gmail.com
-- 😄 Pronouns: He Him
 
 <!---
 CarterYin/CarterYin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
